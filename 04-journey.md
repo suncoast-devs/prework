@@ -10,7 +10,7 @@ This is very important on your growth here with SDG and beyond. Asking questions
 
 ### Learn how to adapt to the fast pace
 
-Read: [http://blog.pickcrew.com/5-alternative-ways-to-manage-time/](http://blog.pickcrew.com/5-alternative-ways-to-manage-time/)
+Read: [https://www.topuniversities.com/blog/7-time-management-tips-students](https://www.topuniversities.com/blog/7-time-management-tips-students)
 
 ### Everyone has something to teach...
 
